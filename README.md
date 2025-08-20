@@ -1,4 +1,4 @@
-made for 25w34b
+made for 25w34b server
 
 shows bad apple
 
